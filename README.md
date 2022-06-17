@@ -1,2 +1,1 @@
-# Fallout-3_Chinese
-辐射 3 年度版汉化补丁
+来源于：http://www.9damaogame.net/thread-179874-1-1.html
